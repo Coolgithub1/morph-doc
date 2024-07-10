@@ -27,3 +27,15 @@ Medium: [Morph – Medium](https://medium.com/@morphlayer2)
 Telegram: https://t.me/morphoffical
 
 Gmail: official@morphl2.io
+
+#### Hi! 
+My name is Adam and I am really interested in a position at Morph!
+I believe my resume exemplifies everything your team is looking for in a Visual Designer with experience in Web3!
+Yes, I know this might be an unconventional way to apply for a job position but, I hope that whomever sees this can tell Genie S. at HR I said Hi!
+
+My email is: adamnatsheh@gmail.com
+
+attached is my resume!
+
+![image](https://github.com/morph-l2/morph-doc/assets/23433162/182e61c1-8ce7-4c61-af88-3f90f38d45ff)
+
